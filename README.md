@@ -1,1 +1,0 @@
-# TylerMinegar.github.io
